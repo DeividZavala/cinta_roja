@@ -1,1 +1,0 @@
-# cinta_roja
